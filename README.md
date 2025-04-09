@@ -1,0 +1,1 @@
+To analyze the evolution of pop song lyrics in terms of passive-negative emotions (such as sadness, fear, depression, and disgust), with particular focus on the post-pandemic period, and to investigate whether there has been an increase in negativity in the most popular tracks.
